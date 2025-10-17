@@ -1,3 +1,4 @@
+### David Babikian
 
 Hi there! I am building where bits meet atoms, shaped by geopolitical and climate futures. Background at Battery Ventures, scaling a critical minerals/metals recovery startup, and improving American manufacturing at Palantir.
 
